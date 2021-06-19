@@ -1,3 +1,3 @@
 # ALBATR55
 
-All copyrights are held by Sami Singh, Marko Tuominen and Santtu Tikka. For business inquiries, piss off.
+No copyrights here bruv. Do whatever. For business inquiries, piss off.
